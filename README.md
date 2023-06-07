@@ -9,6 +9,8 @@ Video Games 🎮
 
 High fantasy literature 📚 (Brandon Sanderson, J. R. R. Tolkien, Patrick Rothfuss, George R. R. Martin)  
 
+Science fiction 🚀
+
 Star Wars fan 👾  
 
 ### And turtles lover 🐢
