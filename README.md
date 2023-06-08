@@ -13,7 +13,7 @@ Science fiction 🚀
 
 Star Wars fan 👾  
 
-### And turtles lover 🐢
+### And I love my turtle 🐢
 
 <img src="https://github.com/Maruku98/Maruku98/assets/133391272/98d23b3e-b02c-47cd-bfcc-ee23540fdbb7" width="500">
 
